@@ -1,16 +1,34 @@
-## Hi there 👋
+👋 Empowering Women Through Skills | Since 2008
+🌿 Image Education Society is a non-profit dedicated to uplifting underprivileged women and children through skill-based training, sustainable product development, and livelihood generation.
 
-<!--
-**imageeducationsociety/imageeducationsociety** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎯 Mission:
+Empowering women to become financially independent and socially confident through hands-on training in:
 
-Here are some ideas to get you started:
+    👗 Tailoring & Apparel Manufacturing
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    💄 Beauty & Wellness
+
+    🏨 Hospitality & Tourism
+
+    💻 Digital Literacy
+
+    ♻️ Eco-conscious Crafts (Macramé, Water Hyacinth, etc.)
+
+    🧵 Small-scale Manufacturing & Market Linkages
+
+    📚 Child Education Support
+
+🏆 Impact Highlights:
+
+    2000+ women trained
+
+    Ongoing work through in-house manufacturing unit
+
+    Public exhibitions & sustainable product sales across India
+
+    Apparel worn by artists like Vir Das and featured on Shark Tank India
+
+👩‍💼 Founder:
+Simran Kaur Munde – Textile Engineer with 25+ years of experience in the apparel and training industry.
+
+📍 Based in Nagpur, India | Committed to skill, sustainability, and social change
